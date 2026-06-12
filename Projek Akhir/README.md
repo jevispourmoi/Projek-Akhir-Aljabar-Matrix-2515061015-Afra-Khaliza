@@ -1,2 +1,0 @@
-**VIDEO PENJELASAN KODE PROJEK**
-https://youtu.be/duQK8O2uIBo
